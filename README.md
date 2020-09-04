@@ -1,5 +1,5 @@
 ### Hi there 👋
-Feel free to spam me at rogerjoeyfan@gmail.com
+Feel free to spam me at [rogerjoeyfan@gmail.com](https://mail.google.com/mail/?view=cm&source=mailto&to=rogerjoeyfan@gmail.com)
 
 <!--
 **omahesh/omahesh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
